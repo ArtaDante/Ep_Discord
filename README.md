@@ -16,3 +16,8 @@
 --> Script For All Framework
 
 #-----ArtaDante#0617-----#
+`Change Nickname To Ep_AutoPilot Remove Main`
+`Change Nickname To Ep_AutoPilot Remove Main`
+`Change Nickname To Ep_AutoPilot Remove Main`
+`Change Nickname To Ep_AutoPilot Remove Main`
+`Change Nickname To Ep_AutoPilot Remove Main`
